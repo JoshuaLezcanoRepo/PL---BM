@@ -19,7 +19,6 @@
 
 Aclaración: Paulo Londra: Biografía + Música está solo Disponible para la Plataforma Android
 
-**La podés Descargar desde este [Link](https://pages.github.com/)**
+**La podés Descargar desde este [Link](https://drive.google.com/file/d/1DWC7xld5f6OaKuHHuMGe6Im0zYrU6p9z/view?usp=sharing)**
 
 A continuación, screenshots de la Aplicación.
-
